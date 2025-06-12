@@ -1,7 +1,6 @@
 # Rainbet Referral Code 2025: Get 20 Free Spins + 100% Deposit
-==================================================
 
-Ready to supercharge your online gaming experience? Rainbet offers new players an exclusive chance to unlock amazing bonuses by using the referral code **ROCKET**. Sign up now and receive an incredible **100% deposit bonus plus 20 Free Spins** on your first deposit. But that's not all—your second deposit gets you a **50% bonus and another 20 free spins**, while your third deposit brings back another **100% bonus with yet another 20 free spins**.
+Sign up now and receive an incredible **100% deposit bonus plus 20 Free Spins** on your first deposit. But that's not all—your second deposit gets you a **50% bonus and another 20 free spins**, while your third deposit brings back another **100% bonus with yet another 20 free spins**.
 
 [Click to activate the Referral Code Directly](https://rebrand.ly/rainbet)
 
@@ -21,7 +20,7 @@ Activating your Rainbet referral code **ROCKET** is simple and straightforward. 
 4.  Complete your deposit to automatically receive your bonus.
     
 
-The bonus is instant upon your first deposit, with no additional action required.
+The bonus is instant upon your first deposit, with no additional action required. The bonus is available forever, but you have 7 days to complete the bonus requirements. The bonus comes with a 40x wagering requirement.
 
 ## What Do You Get from the Promo Code?
 ------------------------------------
