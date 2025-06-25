@@ -25,7 +25,7 @@ The bonus is instant upon your first deposit, with no additional action required
 ## What Do You Get from the Promo Code?
 ------------------------------------
 
-Here's exactly what you’ll get when using promo code **ROCKET**:
+Here's exactly what you’ll get when using [Rainbet Affiliate Code](https://github.com/gambl-offers/rainbet-affiliate-code) **ROCKET**:
 
 *   **First Deposit:** 100% match bonus + 20 Free Spins.
     
